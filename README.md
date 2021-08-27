@@ -2,6 +2,4 @@
 
 idk what you're doing here maté
 
-well, check my shitè repos or that website idk
-
-what? i can't advertise my profile on my own profile?
+I don't do much stuff, probably because I don't know much and have a lack of creativity, sometimes.
