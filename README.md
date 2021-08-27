@@ -2,4 +2,4 @@
 
 idk what you're doing here maté
 
-I don't do much stuff, probably because I don't know much and have a lack of creativity, sometimes.
+I don't do much stuff around here, probably because I don't know much and have a lack of creativity, sometimes.
